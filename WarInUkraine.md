@@ -13,7 +13,7 @@ living under the EU war protections policy.
 You can read more about this war here on this site;
 --(**war in ukraine**)-- "{https://en.wikipedia.org/wiki/Russo-Ukrainian_War}"
 
-### - Initial Course of the War
+### - __Initial Course of the War__
 when the 2nd world war ended, little did we knew that, 
 the signing of that path could lead streamline world 
 peace and even open broad avenue to another bloodflow
